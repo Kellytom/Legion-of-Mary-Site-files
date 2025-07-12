@@ -18,3 +18,17 @@ God bless,
 
 The Legion of Mary in Rhode Island
 
+***
+
+Carta para los Lectores de Habla Ispana
+
+Estimados Amigos,
+
+Por medio de esta carta queremos pedirles una disculpa por la tardanza al cumplimiento de la traducción de algunas cosas en la página web; si tienes alguna pregunta siéntate cómodo y llámanos a este número de teléfono (401) 871-0038 a Marissa.
+
+Quieres saber más respeto a la Legión de Maria, estás interesado en la Legión no sabes cómo obtener información llámame aquí estamos para ayudarte y darte una mano a las manos de María nuestra Madre.
+
+Que Dios los bendiga,
+
+Marissa K., legionaria
+
