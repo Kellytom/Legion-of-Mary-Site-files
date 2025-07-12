@@ -1,4 +1,4 @@
-## **The Legion of Mary in Rhode Island (editing)**
+## **The Legion of Mary in Rhode Island**
 
 Greetings,
 
