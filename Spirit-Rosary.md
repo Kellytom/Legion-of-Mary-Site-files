@@ -14,34 +14,12 @@ While we are presented with different insights into God’s will every time we m
 
 **_[The Joyful Mysteries](/?p=1362)_**
 
-[
-
-![The Joyful Mother](https://thelegionofmaryri.wordpress.com/wp-content/uploads/2023/06/fc6c7-fullsizeoutput_3d76-1.jpeg)
-
-](/?p=1362)
-
-
 
 **_[The Sorrowful Mysteries](/?p=454)_**
 
-[
-
-![The Sorrowful Mother](https://thelegionofmaryri.wordpress.com/wp-content/uploads/2023/06/04dbf-fullsizeoutput_3d91.jpeg)
-
-](/?p=454)
 
 **_[The Glorious Mysteries](/?p=459)_**
 
-[
-
-![The Glorious Mother width=](https://thelegionofmaryri.wordpress.com/wp-content/uploads/2023/06/fa820-glorious-mysteries.jpg)
-
-](/?p=459)
 
 **_[The Luminous Mysteries](/?p=464)_**
 
-[
-
-![The Luminous Mother](https://thelegionofmaryri.wordpress.com/wp-content/uploads/2023/06/012da-luminous-mysteries.jpg)
-
-](/?p=464)
