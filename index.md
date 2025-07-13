@@ -1,5 +1,7 @@
 ## **The Legion of Mary in Rhode Island**
 
+To Jesus Through Mary
+
 Greetings,
 
 Our mission as members of the Legion of Mary in Rhode Island is to offer everyone the chance to build a deeper relationship with Jesus through his most Blessed Mother, Mary. We meet in small groups at parishes throughout the State of Rhode Island and seek to spread the love of Jesus, often through simple acts of kindness towards those who may otherwise have been forgotten.
