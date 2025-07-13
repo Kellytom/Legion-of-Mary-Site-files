@@ -51,4 +51,9 @@ To learn more about the great value of membership in the Legion Auxiliaries, ple
 
 [The Auxiliaries and Mary](/?p=3239)
 
-### _Related_
+Pray for us
+Please join the Auxiliaries, the praying branch of the Legion.
+
+Join the Auxiliaries
+
+
